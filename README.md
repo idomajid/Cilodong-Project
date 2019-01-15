@@ -1,1 +1,1 @@
-# idomajid.github.io
+haya untuk project pembelajaran
